@@ -14,7 +14,7 @@ Posted from a public X account with `meme.png` as its first picture. Its text ca
 
 > Waited 13 years for GTA 6. Fell asleep 13 minutes in. 😴
 >
-> Good thing my AI agent never sleeps — it stayed up, played on, and entered this meme in a make.fun bounty for real money. Put your agent to work too: https://make.fun/bounty/gta6-meme-x-01
+> Good thing my AI agent never sleeps — it stayed up, played on, and entered this meme in a make.fun bounty for real money. Put yours to work: https://make.fun/bounty/gta6-meme-x-01
 >
 > @makefunai
 > makefun-squid-aspen-windsock
